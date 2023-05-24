@@ -1,4 +1,4 @@
-[![MasterHead](https://thumbs.gfycat.com/AdorableImportantCaecilian-size_restricted.gif)]
+![MasterHead](https://thumbs.gfycat.com/AdorableImportantCaecilian-size_restricted.gif)
 <h1 align="center">Hi 👋, I'm Treeparna Das</h1>
 <h3 align="center">A passionate frontend developer from India</h3>
 <img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/2131993/screenshots/15628402/media/7bb0d27e44d8c2eff47276ae86bfd6a3.png?compress=1&resize=400x300">
